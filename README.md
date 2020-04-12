@@ -1,3 +1,3 @@
-Nama : 
+Nama : Syahril Ramadhan
 
-NIM  :
+NIM  : D121181010
